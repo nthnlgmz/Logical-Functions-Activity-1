@@ -8,4 +8,4 @@
 <b>Gomez,Nathaniel A.</b><br>
 <b>Gonzales,Dionnyl Maverick Bryson D.</b><br>
 <b>Mendoza,Gabriel Ralph R.</b><br>
-# WE ARE RND NONAGON KEYWARRIORS
+# WE ARE THE "RND NONAGON KEYWARRIORS"
